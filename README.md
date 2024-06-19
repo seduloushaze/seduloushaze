@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @seduloushaze
-- 😎 My name is VAISHNAVI RAJPUT
 - 👀 I’m interested in CODING
 - 🌱 I’m currently learning WEB DEV
 - 🏢 I work with ITC IIT BOMBAY as a web convener
