@@ -9,7 +9,6 @@
 - 💞️ I’m looking to collaborate on GREAT IDEAS
 - 📫 How to reach me vaishnavirajput4601@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: if i dont pick up your calls i am probably sleeping!
    
 
 
